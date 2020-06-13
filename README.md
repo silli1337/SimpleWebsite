@@ -1,3 +1,3 @@
 # SimpleWebsite
 
-If you are going to use this, credit me :)
+very shitty home page feel free to use it 
